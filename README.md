@@ -9,8 +9,9 @@
 ## Team Royals (Captain: The Gamble Gal)
 ![Team Royals](DALL·E%202024-08-02%2014.25.15%20-%20A%20royal%20crown%20adorned%20with%20jewels,%20with%20the%20name%20'Team%20Royals%20(Captain_%20The%20Gamble%20Gal)'%20written%20in%20elegant,%20regal%20font%20below%20the%20crown.jpg)
 
-## Team True Hearz (Captain: Gunz)
-![Team True Hearz](DALL·E%202024-08-02%2014.27.13%20-%20A%20heart%20with%20wings,%20with%20the%20name%20'Team%20True%20Hearz'%20written%20in%20an%20elegant,%20flowing%20script.%20The%20design%20should%20be%20detailed%20and%20visually%20appealing,%20with%20.jpg)
+## Team Let's Get It (Captain: Gunz)
+![Team Let's Get It](DALL·E%202024-08-03%2001.51.35%20-%20A%20dynamic%20and%20energetic%20design%20featuring%20the%20text%20'Let's%20Get%20It%20(Captain_%20Gunz)'%20with%20a%20vibrant%20and%20bold%20font.%20Include%20elements%20of%20energy%20and%20motion,%20.jpg)
+
 
 ## Team Gladiators (Captain: Beautifullifeslots)
 ![Team Gladiators](DALL·E%202024-08-02%2015.00.47%20-%20A%20fierce%20and%20strong%20gladiator%20helmet%20in%20a%20detailed,%20metallic%20design.%20The%20name%20'Team%20Gladiators'%20should%20be%20written%20in%20a%20bold,%20powerful%20font%20below%20the%20h.jpg)
